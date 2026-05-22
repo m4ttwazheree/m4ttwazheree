@@ -8,6 +8,8 @@
 
   <p align="left" style="size= 20px;">i am not good at interacting at first, im shy and not really that social ok but i want friends and i believe im friendly</p>
 
+⏝ 
+
 <p>this is a big wip </b></p>
 
 <h3 align="left">
