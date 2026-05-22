@@ -1,8 +1,5 @@
-![](https://files.catbox.moe/izohck.gif)
 
-<p align="center">
-⊰⋅──────────────────﹕꒰♡꒱﹕──────────────────⋅⊱
-</p>
+
 
 
 <img src="https://files.catbox.moe/m8s8hi.jpeg" align="right" style="width: 420px;">
@@ -21,3 +18,10 @@
 
 <h3 align="left">
 <br><sub><a href="https://vittorinoo.atabook.org/">VITTORINOS ATABOOK</a>  <a 
+
+<p align="center">
+⊰⋅──────────────────﹕꒰♡꒱﹕──────────────────⋅⊱
+</p>
+
+![](https://files.catbox.moe/izohck.gif)
+
