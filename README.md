@@ -1,16 +1,12 @@
-## Hi there 👋
+<img src="https://files.catbox.moe/m8s8hi.jpeg" align="right" style="width: 420px;">
+<br>
+<p align="left">
+<img src="https://files.catbox.moe/we3ffz.png">
+<img src="https://files.catbox.moe/qkbnqg.webp" style= "width: 45px;"> 
+<img src="https://files.catbox.moe/8lk3op.png"</p> 
+  <p>i am not good at interacting at first, im shy and not really that social ok but i want friends.</p>
 
-<!--
-**vittorinooo/vittorinooo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p>i like 811, fear and hunger, hetalia, piggy, etc (more on strawpage soon) </b></p>
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<h3 align="left">
+<br><sub><a href="https://vittorinoo.atabook.org/">VITTORINOS ATABOOK</a> ✦ <a 
