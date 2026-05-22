@@ -6,7 +6,7 @@
 <img src="https://files.catbox.moe/8lk3op.png"</p>
 <p align="right"> ⏝ he  /  him ⏝ ⸾  VITTORINO / cahara // sealand 🥸  ⏝  14   years  old ⏝ ⸾ </p> 
 
-  <p align="left">i am not good at interacting at first, im shy and not really that social ok but i want friends and i believe im friendly</p>
+  <p align="left" style="width: 20px;">i am not good at interacting at first, im shy and not really that social ok but i want friends and i believe im friendly</p>
 
 <p>this is a big wip </b></p>
 
