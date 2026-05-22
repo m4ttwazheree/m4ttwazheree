@@ -19,8 +19,9 @@
 <h3 align="center">
 <br><sub><a href="https://vittorinoo.atabook.org/">VITTORINOS ATABOOK</a>  <a 
 
-<p align="center">
-<img src= "https://komarev.com/ghpvc/?username=vittorinooo">
+<div align="center">
+
+![](https://komarev.com/ghpvc/?username=vittorinooo&color=275EF5&laber=dante's)
 
 <p align="center">
 
