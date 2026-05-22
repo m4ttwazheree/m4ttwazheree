@@ -1,3 +1,10 @@
+![](https://files.catbox.moe/izohck.gif)
+
+<p align="center">
+⊰⋅──────────────────﹕꒰♡꒱﹕──────────────────⋅⊱
+</p>
+
+
 <img src="https://files.catbox.moe/m8s8hi.jpeg" align="right" style="width: 420px;">
 <br>
 <p align="left">
