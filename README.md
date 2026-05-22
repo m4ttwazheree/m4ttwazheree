@@ -24,6 +24,6 @@
 <p align="center">
 
 </p>
-⊰⋅──────────────────﹕꒰♡꒱﹕──────────────────⋅⊱
-![](https://files.catbox.moe/izohck.gif)
+⊰⋅──────﹕꒰♡꒱﹕──────⋅⊱
+<img src=![](https://files.catbox.moe/izohck.gif)
 
