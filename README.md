@@ -17,8 +17,7 @@
 <p>this is a big wip </b></p>
 
 <h3 align="center">
-<br><sub><a href="https://vittorinoo.atabook.org/">VITTORINOS ATABOOK</a>  <a 
-⏝ ⸾
+<br><sub><a href="https://vittorinoo.atabook.org/">VITTORINOS ATABOOK</a> ⏝  <a 
                                                                              
 <br><sub><a href="https://rentry.co/Vittorinoooo/">VITTORINOS RENTRY</a>  <a 
 
