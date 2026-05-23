@@ -8,7 +8,7 @@
 <img src="https://files.catbox.moe/we3ffz.png">
 <img src="https://files.catbox.moe/qkbnqg.webp" style= "width: 45px;"> 
 <img src="https://files.catbox.moe/8lk3op.png"</p>
-<p><br align="Center"> ⏝ he  /  him ⏝ ⸾  VITTORINO / cahara // sealand   ⏝  14   years  old ⏝ ⸾ </p> 
+<p><b align="Center"> ⏝ he  /  him ⏝ ⸾  VITTORINO / cahara // sealand   ⏝  14   years  old ⏝ ⸾ </p> 
 
   <p><b align="left" style="size= 20px;">i am not good at interacting at first, im shy and not really that social ok but i want friends and i believe im friendly</p>
 
