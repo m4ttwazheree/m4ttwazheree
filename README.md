@@ -23,8 +23,8 @@
 <div align="center">
 
 ![](https://komarev.com/ghpvc/?username=vittorinooo&color=275EF5&laber=dante's)
-<h3 align="center">
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Angelic+war&size=10&pause=1000&color=0F4FF7&background=FFFFFF00&width=435&lines=and+why+did+you+say+things+shall+fall%3F" alt="Typing SVG" /></a>
+
+<a <h3 align="center" href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Angelic+war&size=10&pause=1000&color=0F4FF7&background=FFFFFF00&width=435&lines=and+why+did+you+say+things+shall+fall%3F" alt="Typing SVG" /></a>
 
 <p align="center">
 
