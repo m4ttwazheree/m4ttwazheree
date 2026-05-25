@@ -14,7 +14,7 @@
 
 ⏝ 
 
-<p> i am turning 15 in august. NO C+H PLS i just learned what that meant 😭 sigh but you may sit next to me if youre a friend! </b></p>
+<p> i am turning 15 in august. idk what to put here ok </b></p>
 
 <h3 align="center">
 <br><sub><a href="https://vittorinoo.atabook.org/">VITTORINOS ATABOOK</a> ⏝  <a 
