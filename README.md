@@ -2,7 +2,7 @@
 
 
 
-<img src="https://litter.catbox.moe/t96np9yvnlxf2pog.jpeg" align="center" style="width: 420px;">
+<img src="https://litter.catbox.moe/t96np9yvnlxf2pog.jpeg" align="center" 
 <br>
 <p><b align="center"> 　◞　
 
