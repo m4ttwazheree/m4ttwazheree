@@ -4,7 +4,7 @@
 
 <img src="https://files.catbox.moe/m8s8hi.jpeg" align="left" style="width: 420px;">
 <br>
-<p align="right">
+<p align="left">
 <img src="https://files.catbox.moe/we3ffz.png">
 <img src="https://files.catbox.moe/qkbnqg.webp" style= "width: 45px;"> 
 <img src="https://files.catbox.moe/8lk3op.png"</p>
