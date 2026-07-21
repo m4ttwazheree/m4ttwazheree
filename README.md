@@ -2,9 +2,9 @@
 
 
 
-<img src="https://litter.catbox.moe/t96np9yvnlxf2pog.jpeg" align="center" 
+<img src="https://litter.catbox.moe/t96np9yvnlxf2pog.jpeg" align="center" style="width: 420px;">
 <br>
-<p><b align="center"> 　◞　
+　
 
   
 
