@@ -8,12 +8,12 @@
 <img src="https://files.catbox.moe/we3ffz.png">
 <img src="https://files.catbox.moe/qkbnqg.webp" style= "width: 45px;"> 
 <img src="https://files.catbox.moe/8lk3op.png"</p>
-<p><b align="Left"> ⏝ he  /  him ⏝ ⸾  VITTORINO / cahara // sealand   ⏝  14   years  old ⏝ ⸾ </p> 
+<p><b align="Left"> ⏝ he  /  him ⏝ ⸾  ref   ⏝  ref ⏝ ⸾ </p> 
 
   <p><b align="right" style="size= 20px;"> ref.・゜゜・
 ⏝ 
 
-<p> i am turning 15 in august. i  like  8:11  and  fear  and  hunger and others,  i  like  dinosaurs and history </b></p>
+<p> refy </b></p>
 
 <h3 align="center">
 <br><sub><a href="https://vittorinoo.atabook.org/">VITTORINOS ATABOOK</a> ⏝  <a 
