@@ -10,8 +10,7 @@
 <img src="https://files.catbox.moe/8lk3op.png"</p>
 <p><b align="Left"> ⏝ he  /  him ⏝ ⸾  VITTORINO / cahara // sealand   ⏝  14   years  old ⏝ ⸾ </p> 
 
-  <p><b align="right" style="size= 20px;">i am not good at interacting at first, im shy and not really that social ok but i want friends and i believe im friendly. I have diagnosed (level 1) autism sigh bruh </p>
-
+  <p><b align="right" style="size= 20px;"> ref.・゜゜・
 ⏝ 
 
 <p> i am turning 15 in august. i  like  8:11  and  fear  and  hunger and others,  i  like  dinosaurs and history </b></p>
