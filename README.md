@@ -4,7 +4,8 @@
 
 <img src="https://litter.catbox.moe/t96np9yvnlxf2pog.jpeg" align="left" style="width: 420px;">
 <br>
-<p><b align="Left">꒰ 　◞　・゜゜・
+<p><b align="Left">꒰ 　◞　・
+
   
 <p><b align="Left"> ⏝ he  /  him ⏝ ⸾  m4tt_wazhere  ⏝  i like roblox args ok ⏝ ⸾ </p> 
 
