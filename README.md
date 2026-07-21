@@ -9,7 +9,7 @@
   
 <p><b align="Left"> ⏝ he  /  him ⏝ ⸾  m4tt_wazhere  ⏝  i like roblox args ok ⏝ ⸾ </p> 
 
-  <p><b align="right" style="size= 20px;"> ref.・゜゜・
+
 
 <h3 align="center">
 <br><sub><a href="https://m4ttwazhere.atabook.org/">M4tts ataBOOK!</a> ⏝  <a 
