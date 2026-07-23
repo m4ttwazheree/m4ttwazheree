@@ -7,7 +7,7 @@
 
 <h3 align="center">
   
-![](https://komarev.com/ghpvc/?username=m4ttwazheree&color=275EF5&laber=dante's)
+![](https://files.catbox.moe/qoqp8n.png)
 
 
 
