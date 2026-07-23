@@ -7,13 +7,12 @@
 
 <h3 align="center">
   
+![](https://komarev.com/ghpvc/?username=m4ttwazheree&color=275EF5&laber=dante's)
+
+
+
+
 ![](https://files.catbox.moe/qoqp8n.png)
-
-
-
-
-<img src="https://litter.catbox.moe/t96np9yvnlxf2pog.jpeg" align="center" style="width: 420px;">
-<br>
 　
 
   
