@@ -1,9 +1,10 @@
  
 <h3 align="center">  
- seasons changing without warning   ︵‿   changing as we sleep 
-<br><sub><a href="https://m4ttwazhere.atabook.org/"> ♡ ata </a>  ⏝        <a 
- <br><sub><a href="https://rentry.co/davesintroo/">  rentry(Dave)</a> ⏝   
- <br><sub><a href="https://rentry.co/mattsintro/">  Matt verison rentry nothing different just matt</a> ⏝     <br><sub><a href="https://askmatt.straw.page/"> ask me things! ♩ </a>  ⏝         
+ 
+ <sub><a href="https://m4ttwazhere.atabook.org/"> ♡ ata </a>  ⏝   <sub><a href="https://rentry.co/davesintroo/">  rentry(Dave)</a> 
+ 
+ <sub><a href="https://rentry.co/mattsintro/">  Matt verison rentry nothing different just matt</a> ⏝      <sub><a href="https://askmatt.straw.page/"> ask me things! ♩ </a>  ⏝         
+ 
 
 
 
@@ -16,6 +17,8 @@
 
 
 ![](https://files.catbox.moe/2s7ds5.png)
-　
+　<p align="center">
+<SUB>  seasons changing without warning   ︵‿   changing as we sleep 
+</p
 
   
