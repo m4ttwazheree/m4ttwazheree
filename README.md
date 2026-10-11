@@ -4,7 +4,7 @@
 <sub><a href="https://rentry.co/matteosintro/">  Matt s Rentry</a> ⏝    
  
 
-  <sub><a href="https://rentry.co/davesintroo/">  rentry(tavros verison, no reason for why theres 2, I just thought this was cool xD)</a> 
+  <sub><a href="https://rentry.co/tavrosintro/">  rentry(tavros verison, no reason for why theres 2, I just thought this was cool xD)</a> 
  
 <sub><a href="https://askmatt.straw.page/"> ask me things! ♩ </a>  ⏝  
 
