@@ -23,7 +23,7 @@
 
 ![](https://files.catbox.moe/2s7ds5.png)
 　<p align="center">
-<SUB>  seasons changing without warning   ︵‿   changing as we sleep 
+<SUB> i miss        him   
 </p
 
   
