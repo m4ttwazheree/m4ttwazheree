@@ -16,12 +16,12 @@
 
 <h3 align="center">
   
-![](https://komarev.com/ghpvc/?username=m4ttwazheree&color=275EF5&laber=dante's)
+ ![](https://komarev.com/ghpvc/?username=m4ttwazhere&color=283d8a&style=plastic&label=:D)
 
 
 
 
-![](https://files.catbox.moe/2s7ds5.png)
+![](https://files.catbox.moe/bzthbz.png) 
 　<p align="center">
 <SUB> i miss        him  
 </p
