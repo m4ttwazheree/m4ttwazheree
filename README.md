@@ -22,7 +22,7 @@
 
 
 
-![](https://files.catbox.moe/bzthbz.png) 
+![](https://static.wikia.nocookie.net/roblox-webseries/images/8/87/Hppybirthday.jpg/revision/latest/scale-to-width-down/1000?cb=20251214204335) 
 　<p align="center">
 <SUB> i miss        him  
 </p
