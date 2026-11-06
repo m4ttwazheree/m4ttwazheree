@@ -11,7 +11,7 @@
  <sub><a href="https://m4ttwazhere.atabook.org/"> ♡ ata </a>  ⏝
  
 　<p align="center">
-<SUB> Happy birthday         travis!  
+<SUB>  
 </p  
 
 
@@ -22,7 +22,7 @@
 
 
 
-![](https://static.wikia.nocookie.net/roblox-webseries/images/8/87/Hppybirthday.jpg/revision/latest/scale-to-width-down/1000?cb=20251214204335) 
+![](https://file.garden/au44Pe6rap1xVQAs/Screenshot%202026-11-03%203.37.54%20PM.png) 
 　<p align="center">
 <SUB> i miss        him  
 </p
