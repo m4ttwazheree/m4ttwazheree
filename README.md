@@ -24,10 +24,8 @@
 
 ![](https://file.garden/au44Pe6rap1xVQAs/Screenshot%202026-11-06%203.33.39%20PM.png) 
 　<p align="center">
-<SUB> i miss        him  
+<SUB> i still wonder if u ever cared  
 </p
-　<p align="center">
-<SUB> i ll always wait        4 u  
-</p
-
+ 
+ 
   
