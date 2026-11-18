@@ -22,7 +22,7 @@
 
 
 
-![](https://file.garden/au44Pe6rap1xVQAs/Screenshot%202026-11-06%203.33.39%20PM.png) 
+![](https://files.catbox.moe/q7twk9.png)
 　<p align="center">
 <SUB> i still wonder if u ever cared  
 </p
